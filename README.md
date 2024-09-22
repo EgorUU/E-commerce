@@ -1,1 +1,1 @@
-Ссылка на проект : https://egoruu.github.io/E-commerce/
+Ссылка на Сайт : https://egoruu.github.io/E-commerce/
